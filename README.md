@@ -1,6 +1,7 @@
-Hallo, ich bin Plutope.
+hi am plutope :3
 
-I am interested in making Q2 VR games.
-I am currently learning C#.
-If you would like to give me help/tips to help me that would be much appreciated.
-To contact me my Discord is @Plutope#0670
+idk why i made this account
+
+probably for modding games
+
+to contact me my discord is @Pluto#0670
